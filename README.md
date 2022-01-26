@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @veselyp01
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate on Everyone
+- 📫 How to reach me Join my Discord: 
